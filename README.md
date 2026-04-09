@@ -2,4 +2,4 @@
 tryna to make  something...
 
 
-mungkin anime based website
+mungkin anime based website gitu kann pamer waifu wkwk
